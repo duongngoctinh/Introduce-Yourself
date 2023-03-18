@@ -1,0 +1,7 @@
+Hi guys! My name is Duong Ngoc Tinh and I’m a former Dong A university student here at  who studied sports coaching and performance from the years of 2018-22. The last three years of my life have been nothing short of eye-opening and have blessed me with the opportunity to meet and learn from some great people. Whether that be from my loca or through my participation in voluntary work.
+
+Throughout University, I was involved with local football charity Soccer Centre and Football Club, who provide football for all, and host a space to compete against other football teams across country. This has been a great way I could engage with the local community, build my character and understand the great diversity we have here in Da Nang, while also pursuing one of my passions, which is football .
+
+Alongside this, I took the opportunity to go for Course Rep, which later progressed to pass leadership role (Peer assisted study session), which involves second year and third year students supporting first year students with acclimatising to the academic demands of their course. The experience I have gathered leading and supporting others, has given me the confidence to move into the Students’ Union President role, with the hope to do the same with you all.
+
+In my time as your Students’ Union President, I plan to improve your social and academic experience to help you create great memories and position you best for success after your time here at The University of .
